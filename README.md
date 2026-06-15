@@ -9,4 +9,4 @@
 
 
 
-![](https://tenor.com/pt-BR/view/baby-cute-gif-31385605967665232)
+![](https://tenor.com/pt-BR/view/guitar-playing-nirvana-cobain-kurtcobain-gif-25670135)
