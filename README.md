@@ -8,5 +8,4 @@
 ## gosto de memes e comédia☄️
 
 
-
-![](https://tenor.com/pt-BR/view/guitar-playing-nirvana-cobain-kurtcobain-gif-25670135)
+![](guitar-playing-nirvana-cobain-kurtcobain-gif-25670135.html)
